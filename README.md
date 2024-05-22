@@ -1,4 +1,4 @@
-## Salve pras quem é corinthiano 🖤🤍
+## Salve pra quem é corinthiano 🖤🤍
 
 Meu nome é João
 
